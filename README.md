@@ -12,6 +12,8 @@ My favorite games include:
 
 • VRChat
 
+• Wadality
+
 And more!
 
 If you want to contact me, DM me at amber <3#3389.
