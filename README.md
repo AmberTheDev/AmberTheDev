@@ -1,4 +1,4 @@
-# AmberTheDev's Profile!
+# SecureJS's Profile!
 Hello! I am Amber! I program in C# and Python.
 
 My favorite games include:
